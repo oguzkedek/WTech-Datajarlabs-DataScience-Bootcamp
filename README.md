@@ -1,2 +1,1 @@
-# WTech-Datajarlabs DataScience Bootcamp
- WTech&Datajarlabs Data Science Bootcamp - Assignments & Capstone Projects
+83053708449998.png
